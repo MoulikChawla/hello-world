@@ -1,2 +1,62 @@
 # hello-world
 Lol, A description which describes the description which is describing the description of the description.
+
+
+Tsuyoku nareru riyuu wo shitta
+Boku wo tsurete susume
+
+Dorodarake no soumatou ni you
+Kowabaru kokoro furueru te wa
+Tsukamitai mono ga aru
+Sore dake sa
+
+Yoru no nioi ni (I'll spend all thirty nights)
+Sora nirandemo (Staring into the sky)
+Kawatte ikeru no wa jibun jishin dake
+Sore dake sa
+
+Tsuyoku nareru riyuu wo shitta
+Boku wo tsurete susume
+
+Dou shitatte!
+
+Kesenai yume mo tomarenai ima mo
+Dareka no tame ni tsuyoku nareru nara
+Arigatou kanashimi yo
+Sekai ni uchinomesarete makeru imi wo shitta
+Guren no hana yo sakihokore
+Unmei wo terashite
+
+Inabikari no zatsuon ga mimi wo sasu
+Tomadou kokoro yasashii dake ja
+Mamorenai mono ga aru
+Wakatteru kedo
+
+Suimenka de karamaru zenaku
+Sukete mieru gizen ni tenbatsu
+Tell me why, Tell me why, Tell me why, Tell me...
+I don't need you!
+Itsuzai no hana yori
+Idomi tsudzuke saita ichirin ga utsukushii
+
+Ranbou ni shikitsumerareta togedarake no michi mo
+Honki no boku dake ni arawareru kara
+Norikoete miseru yo
+Kantan ni katazukerareta mamorenakatta yume mo
+Guren no shinzou ni ne wo hayashi
+Kono chi ni yadotteru
+
+Hito shirezu hakanai chiriyuku ketsumatsu
+Mujou ni yabureta himei no kaze fuku
+Dareka no warau kage dareka no nakigoe
+Daremo ga shiawase wo negatteru
+
+Dou shitatte
+Kesenai yume mo tomarenai ima mo
+Dareka no tame ni tsuyoku nareru nara
+Arigatou kanashimi yo
+Sekai ni uchinomesarete makeru imi wo shitta
+Guren no hana yo sakihokore
+Unmei wo terashite
+
+Unmei wo terashite
